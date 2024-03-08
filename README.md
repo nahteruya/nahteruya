@@ -1,4 +1,4 @@
-## Olá! Eu sou Kelly Naomi 👋
+## Olá! Me chamo Naomi Teruya 👋
 
 <div align="center">
   <a href="https://github.com/nahteruya">
